@@ -109,4 +109,4 @@ This section supports bi-directional sync by extracting parameter values from Re
 
 Jin (Jessica) Yang   
 https://jinjessicayang.com  
-LinkedIn: [@jin-y-30756051](https://www.linkedin.com/in/jin-yang-30756051) 
+LinkedIn: [@yjessica987](https://www.linkedin.com/in/yjessica987/) 
